@@ -6,7 +6,9 @@ People think it's hard to make a difference.
 
 but it's not. Every one of our decisions, actions, and purchases **echoes** acrross our nearly 8 billion strong existence. Every bit of plastic, every ounce of kindness, all of it _stretches_ across us all. And although making a difference isn't hard, making the right one is. 
 
-For now we are still a hedonistic little superbaby testing it's morality. A single organism in its infancy, just barely able to to communicate with itself. Obscured from ourselves, and even though many of our truths may exist already, perhaps in a foreign metafor, or a funeral rite, or an elder's smile. Just as true wisdom means a personmust know themselves, eventually, we will know each other.  
+For now we are still a hedonistic little superbaby testing it's morality. A single organism in its infancy, just barely able to to communicate with itself. Obscured from ourselves. Even though many of our universal truths may already exist, perhaps in a foreign metafor, or a funeral rite, or just in a meme.
+
+So as true wisdom means a person must know themselves, eventually, we will know each other. 
 
 My silly ambition and glorious purpose is trivial. 
 
